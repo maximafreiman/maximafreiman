@@ -4,7 +4,9 @@ Bitcoin Protocol Development & Node Enthusiast. Founder of the KnotsID Community
 
 Alongside my work and dedication in Bitcoin, I am a graphic designer specializing in layout and visual structure, focused on creating clear and structured visual communication for Bitcoin education and technical concepts, with an emphasis on clarity, hierarchy, and usability.
 
-A Small and non-profit Bitcoin-only Research Group
+**A Small and non-profit Bitcoin-only Research Group**
 https://t.me/+5e-CbP0QOy82YTNl (KnotsID Community)
 
+**Bitcoin Graphic Design Portfolio**
+https://www.behance.net/maximaart21
 

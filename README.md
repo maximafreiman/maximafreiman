@@ -8,5 +8,5 @@ Alongside my work and dedication in Bitcoin, I am a graphic designer specializin
 https://t.me/+5e-CbP0QOy82YTNl (KnotsID Community)
 
 **Bitcoin Graphic Design Portfolio**
-https://www.behance.net/maximaart21
+https://www.behance.net/maximaart21 (Maxima Freiman)
 

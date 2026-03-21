@@ -1,12 +1,7 @@
 ## Hi there 👋
 
-Bitcoin Protocol Development & Node Enthusiast. Founder of the KnotsID Community, a small non-profit organization focused on Bitcoin and Node Research. I teach Bitcoin in technical and practical ways, helping people understand how the network truly works, from running nodes and exploring the protocol to privacy, decentralization, and financial sovereignty. 
+Bitcoin Protocol Development & Node Enthusiast. I teach Bitcoin in technical and practical ways, helping people understand how the network truly works, from running nodes and exploring the protocol to privacy, decentralization, and financial sovereignty. 
 
 Alongside my work and dedication in Bitcoin, I am a graphic designer specializing in layout and visual structure, focused on creating clear and structured visual communication for Bitcoin education and technical concepts, with an emphasis on clarity, hierarchy, and usability.
 
-**A Small and non-profit Bitcoin-only Research Group**
-[KnotsID Community](https://t.me/+5e-CbP0QOy82YTNl) 
-
-**Bitcoin Graphic Design Portfolio**
-[Maxima Freiman](https://www.behance.net/maximaart21) 
 
